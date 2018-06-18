@@ -1,1 +1,0 @@
-# Infectious-Diseases-Department-of-Huashan-Hospital
